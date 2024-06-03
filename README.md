@@ -13,4 +13,3 @@ Meu nome é Gabriel Kloke
 @kl0kez
 
 ![](https://media1.tenor.com/m/EW0QrCEmLqoAAAAC/dancinha-dancinhaboladaadriano.gif)
-https://media1.tenor.com/m/EW0QrCEmLqoAAAAC/dancinha-dancinhaboladaadriano.gif
